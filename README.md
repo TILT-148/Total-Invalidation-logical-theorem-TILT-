@@ -1,4 +1,4 @@
-# ONTOLOGICAL "ALYK LOCK"
+# Ontological "ALYK LOCK"
 # Total-Invalidation-logical-theorem (TILT)
 
 THEOREM: "I KNOW NOTHING AT ALL (NOT EVEN THIS)"
